@@ -30,9 +30,14 @@
 
 ### Modo de preparo
 
+1. Em uma vasilha, bata os ovos com um garfo;
+2. Adicione todos os ingrdientes líquidos (exceto água quente) e misture até obter uma solução homogênea;
 
-
-
+3.  Em outra vasilha, misture todos ingredientes secos (exceto fermento) peneirados; 
+4.  Junte os dois conteúdos em uma única vasilha e misture-os até obter uma massa homogênea. 
+5. Coloque a água quente e o fermento e misture novamente. 
+6. Unte uma forma com manteiga e farinha e despeje a massa homogênea nela. 
+7. Leve ao forno pré-aquecido a 180 graus por 25-30 minutos. 
 
 
 
